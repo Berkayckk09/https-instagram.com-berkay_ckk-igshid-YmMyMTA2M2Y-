@@ -1,1 +1,1 @@
-# https-instagram.com-berkay_ckk-igshid-YmMyMTA2M2Y-
+ {Berkay_ckk berkay.yedekq }
